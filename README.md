@@ -1,4 +1,4 @@
-![Banner](https://www.studiomarcbonet.com/images/banner.jpg)
+(https://www.studiomarcbonet.com/images/banner.jpg)
 
 
 # Sound, Storytelling & Perception — by Marc Bonet
