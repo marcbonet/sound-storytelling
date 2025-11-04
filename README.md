@@ -1,3 +1,6 @@
+![Banner](https://www.studiomarcbonet.com/images/banner.jpg)
+
+
 # Sound, Storytelling & Perception — by Marc Bonet
 
 I’m **Marc Bonet**, a Creative Producer and Sound Director with over a decade of international experience shaping narrative-driven audiovisual projects across sport, culture, and brand communication.
